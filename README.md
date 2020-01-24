@@ -1,0 +1,2 @@
+# NerdUntis
+Only for nerds
